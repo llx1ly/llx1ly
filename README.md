@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @llx1ly
+- 👀 I’m interested in Discord and Roblox
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me discord lxly#9523
